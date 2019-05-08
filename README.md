@@ -1,4 +1,4 @@
-# IVA-PrivacyPolicy
+# Iglesia Vida Abundante - PrivacyPolicy
 Privacy Policy
 Effective date: May 06, 2019
 
